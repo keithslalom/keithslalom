@@ -8,4 +8,3 @@
 - 💬 Ask me about Product Management and Enterrise IT.
 - 📫 How to reach me: keith.klundt@slalom.com or 801.580.8065
 - ⚡ Fun fact: I ski, hike, mountain bike, and trail run for fun.
--->
